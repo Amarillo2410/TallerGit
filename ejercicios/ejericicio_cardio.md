@@ -23,11 +23,11 @@ Caminar, 🏃‍♂️correr, 🚴‍♂️andar en bici, 🏊‍♂️ nadar, s
 * Empieza con un calentamiento (5-10 minutos)🔥:
 Haz movimientos suaves como caminar o estiramientos dinámicos para preparar el cuerpo.
 
-⏱️Haz cardio a tu ritmo (20-30 minutos)⏱️
+* ⏱️Haz cardio a tu ritmo (20-30 minutos)⏱️
 
 * 🎯Si estás comenzando: empieza con caminatas rápidas o trotes suaves🎯.
 
-🎯Mantén un ritmo donde puedas hablar, pero no cantar (zona aeróbica)🎯.
+* 🎯Mantén un ritmo donde puedas hablar, pero no cantar (zona aeróbica)🎯.
 
 * Enfría al final (5 minutos)⏱️
 Disminuye la intensidad poco a poco y haz estiramientos para evitar dolores musculares.
@@ -35,7 +35,7 @@ Disminuye la intensidad poco a poco y haz estiramientos para evitar dolores musc
 * Hazlo con regularidad
 Intenta hacer cardio 3 a 5 veces por semana, adaptando la duración e intensidad según tu nivel🎯
 
-## *consejo*
+## *consejos*
 
 * Sé constante: mejor poco y seguido que mucho y esporádico.🎯
 
