@@ -16,6 +16,22 @@ El cardio, o ejercicio cardiovascular, es una actividad física que aumenta la f
 
 🛌 Mejora la calidad del sueño: El cardio regular puede ayudarte a dormir más rápido y profundamente.
 
+## *instrucciones*
+Elige una actividad que disfrutes como:
+Caminar, correr, andar en bici, nadar, saltar la cuerda, bailar o usar máquinas como la elíptica.
 
+Empieza con un calentamiento (5-10 minutos):
+Haz movimientos suaves como caminar o estiramientos dinámicos para preparar el cuerpo.
 
+Haz cardio a tu ritmo (20-30 minutos)
+
+Si estás comenzando: empieza con caminatas rápidas o trotes suaves.
+
+Mantén un ritmo donde puedas hablar, pero no cantar (zona aeróbica).
+
+Enfría al final (5 minutos)
+Disminuye la intensidad poco a poco y haz estiramientos para evitar dolores musculares.
+
+Hazlo con regularidad
+Intenta hacer cardio 3 a 5 veces por semana, adaptando la duración e intensidad según tu nive
 
