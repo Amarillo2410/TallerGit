@@ -13,3 +13,12 @@
 * Ayuda a mantener un peso saludable ⚖️
 
 * Reduce el riesgo de lesiones 🛡️
+
+# *instrucciones*
+* Elige el tipo de ejercicio: usa pesas, bandas elásticas o tu propio peso corporal.
+
+* Realiza un calentamiento específico: movimientos articulares y series ligeras para preparar los músculos.
+
+* Haz ejercicios controlados y lentos: enfócate en la técnica y el movimiento completo.
+
+* Respira correctamente: exhala al hacer fuerza e inhala al regresar a la posición inicial.
