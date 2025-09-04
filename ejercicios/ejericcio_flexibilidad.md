@@ -13,3 +13,19 @@
 * Favorece una mejor postura y equilibrio corporal.
 
 * Aumenta el rendimiento físico en deportes y actividades físicas.
+
+## *instrucciones*
+* Calienta antes de estirar
+Realiza 5-10 minutos de actividad ligera (caminar, trotar suave) para preparar los músculos.
+
+* Mantén cada estiramiento entre 15 y 30 segundos
+No rebotes; mantén el estiramiento de forma suave y constante.
+
+* Respira profundamente y relájate
+Inhala por la nariz, exhala por la boca; esto ayuda a relajar el cuerpo y profundizar el estiramiento.
+
+* No estires hasta sentir dolor
+El estiramiento debe sentirse, pero sin causar molestia. Llega hasta donde tu cuerpo lo permita.
+
+* Hazlo al menos 3 veces por semana
+La flexibilidad mejora con la práctica constante.
