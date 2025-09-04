@@ -35,3 +35,12 @@ Disminuye la intensidad poco a poco y haz estiramientos para evitar dolores musc
 Hazlo con regularidad
 Intenta hacer cardio 3 a 5 veces por semana, adaptando la duración e intensidad según tu nive
 
+## *consejo*
+
+Sé constante: mejor poco y seguido que mucho y esporádico.
+
+Aumenta progresivamente: sube intensidad o tiempo poco a poco.
+
+Varía la rutina: cambia de actividad para no aburrirte.
+
+Hidrátate y usa buen calzado: cuida tu cuerpo antes, durante y después.
