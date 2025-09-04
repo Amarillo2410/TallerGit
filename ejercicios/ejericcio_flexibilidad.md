@@ -29,3 +29,17 @@ El estiramiento debe sentirse, pero sin causar molestia. Llega hasta donde tu cu
 
 * Hazlo al menos 3 veces por semana
 La flexibilidad mejora con la práctica constante.
+
+## *consejos*
+
+* Sé constante: estira al menos 3 veces por semana.
+
+* Hazlo con músculos calientes: estira después del ejercicio o tras un calentamiento.
+
+* No rebotes: mantén los estiramientos suaves y controlados.
+
+* Escucha tu cuerpo: evita el dolor; estira solo hasta donde sea cómodo.
+
+* Respira profundo: ayuda a relajar el cuerpo y aumentar el alcance del estiramiento.
+
+* Incluye todo el cuerpo: no te enfoques solo en una zona; trabaja piernas, espalda, brazos y cuello.
